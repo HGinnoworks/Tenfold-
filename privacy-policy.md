@@ -36,4 +36,4 @@ If this policy changes, the updated version will be posted at this same URL with
 
 ## Contact
 
-For questions about this policy, contact: **[your email address]**
+For questions about this policy, contact: **Hemang@hgwellness.co**
